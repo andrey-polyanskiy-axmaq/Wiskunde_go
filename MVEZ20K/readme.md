@@ -1,0 +1,3 @@
+Wiskunde is malkik
+
+запуск - 
